@@ -1,3 +1,2 @@
 # 47-Kripto24
-Adrian Jeremia Kurniawan
-140810220047
+Adrian Jeremia Kurniawan - 140810220047
